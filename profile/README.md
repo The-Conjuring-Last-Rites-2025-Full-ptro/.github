@@ -5,11 +5,11 @@ Welcome to the official GitHub repository dedicated to **The Conjuring: Last Rit
 ---
 ***
 
-### <a href="https://t.me/+fkrv3tyHP383OGQ1" rel="nofollow">➤ ►[CLICK HERE TO WATCH THIS MV(Link1)]</a>
+### <a href="https://moviextra.in/qqidhv" rel="nofollow">➤ ►[CLICK HERE TO WATCH THIS MV(Link1)]</a>
 
-### <a href="https://t.me/+fkrv3tyHP383OGQ1" rel="nofollow">➤ ► [CLICK HERE TO WATCH THIS MV(2025) (4k UHD Movies & TV Shows)]</a>
+### <a href="https://moviextra.in/qqidhv" rel="nofollow">➤ ► [CLICK HERE TO WATCH THIS MV(2025) (4k UHD Movies & TV Shows)]</a>
 
-### <a href="https://t.me/+fkrv3tyHP383OGQ1" rel="nofollow">➤ ► [CLICK HERE TO WATCH THIS MV (2025) (Link2)]</a>
+### <a href="https://moviextra.in/qqidhv" rel="nofollow">➤ ► [CLICK HERE TO WATCH THIS MV (2025) (Link2)]</a>
 ***
 ---
 ## About The Conjuring: Last Rites (2025)  
